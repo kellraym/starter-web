@@ -18,6 +18,7 @@ Sample website with plenty of files for demos
 
 gib me munny
 fork this repo and issue pull request for review
+also more money
 
 ## Copyright
 
