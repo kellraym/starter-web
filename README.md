@@ -22,4 +22,5 @@ also more money
 
 ## Copyright
 
+don't steal this
 Kell Industries 2021
