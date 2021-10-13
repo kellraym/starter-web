@@ -23,4 +23,4 @@ also more money
 ## Copyright
 
 don't steal this
-Kell Industries 2021. All rights reserved
+Kell Industries 2021. All rights reservedEMERGENCY EMERGENCY
